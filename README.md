@@ -1,1 +1,1 @@
-# The-Queen-s-School-Hackerton-
+# The-Queen-s-School-hackathon-
